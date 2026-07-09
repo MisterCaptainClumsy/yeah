@@ -1,3 +1,13 @@
-<img width="520" height="16" alt="piano" src="https://github.com/user-attachments/assets/141cb021-7774-4fe5-8cee-e4385182a8e8" />
-Why hello there!
+<img width="635" height="22" alt="firedivider,literally" src="https://github.com/user-attachments/assets/505bac81-6077-4f27-b7c2-d6dd61332351" />
 
+<img width="91" height="47" alt="evilpaper" src="https://github.com/user-attachments/assets/09363032-616c-44f7-9817-d0a4a8048c91" />
+
+
+yo im otis
+
+I like homestuck, so do talk to me about it if you'd like.
+the same applies to any of my interests
+
+Im often awkward and lack things to say
+
+<img width="500" height="304" alt="2ndpzw5o2dix" src="https://github.com/user-attachments/assets/b6e80d98-114c-4ad2-89f1-047822b6e289" />
