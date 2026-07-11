@@ -31,3 +31,4 @@ i enjoy various things, so dont be afraid to ask me about any of them.
 <img width="78" height="24" alt="kudos" src="https://github.com/user-attachments/assets/d0bd071d-d0af-4e8d-ab47-565f9785a8b0" />
 
 
+as stated on my tumblr, i am very awkward and usually do not have many things to say.
